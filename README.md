@@ -1,0 +1,2 @@
+# divendres_fxgg
+esborrar
